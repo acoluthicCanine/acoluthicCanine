@@ -19,7 +19,7 @@ For more of my interests, look at my Spacehey.
 Things I dislike:
 AI, raw tomatoes, cheese, french food, the dentist, big social medias
 
-__
+---
 I like it when people talk *at* me about their interests, I don't bite I promise :3 !!
 
 I have no dni. If I don't like you, you're getting blocked lmao.
