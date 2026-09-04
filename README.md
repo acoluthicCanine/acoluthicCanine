@@ -10,7 +10,7 @@
 
 <h3 align="middle";>If you want more of me:</h3>
 
-<p align= middle>Take a look at <a href="https://spacehey.com/corso target="_blank">my Spacehey,</a> it's got all of my interests :3 </p>
+<p align= middle>Take a look at <a href="https://spacehey.com/corso">my Spacehey,</a> it's got all of my interests :3 </p>
 
 
 </br> 
