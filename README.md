@@ -22,10 +22,10 @@
 
 <h3 align="middle";>Ponies I commonly use:</h3>
 <p align="middle">
-  <img align="top" img src="https://files.catbox.moe/eco0zq.gif" width="200" />
-  <img align="top" img src="https://files.catbox.moe/zsnyo5.gif" width="200" /> 
-  <img src="https://files.catbox.moe/knb5or.gif" width="200" />
-  <img align="top" img src="https://files.catbox.moe/3lad9a.gif" width="200" />
+  <img align="top" img src="https://files.catbox.moe/zxgx5h.gif" width="200" />
+  <img align="top" img src="https://files.catbox.moe/fbrs3v.gif" width="200" /> 
+  <img align="top" img src="https://files.catbox.moe/whx2p1.gif" width="200" />
+  <img align="top" img src="https://files.catbox.moe/7j4y43.gif" width="200" />
 </p>
 </br>
 </br>
