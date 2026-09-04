@@ -1,33 +1,35 @@
-NAME: acoluthicCanine, Canine, Corso
-AGE: older than homestuck (ADULT)
-SEX: troll reproductive organs
-LOCATION: stuck at home
-PRONOUNS: **she/they**/dog/wolf/dude/bro/kar/kat
-APPEARANCE: ![kyaaaaa >_<](https://files.catbox.moe/9fxfwo.jpeg)
+![](https://files.catbox.moe/1j9iht.png)
 
----
-#### instructions
-Hello ponies :3 Feel free to C+H with me whenever you want, I love it when people sit with me, I actually prefer it! I'm always looking to make friends, not acquaintances!
+<p align= middle> Wassup ponies, I am Canine (They/Her), <b><ins>I am an adult</ins></b> </p>
+<p align= middle> I am afflicted with autism hence I rarely interact. I am the most awkward person in the universe. Feel free to int regardless.</p>
+<p align= middle><ins>C+H is always encouraged,</ins> Idc if you copy/use my ponies as inspo.</p> 
+<p align= middle> Usually on safe server with <a href="https://github.com/POKIPOKIPOKIPOKI" target="_blank">my sibling <3,</a> or in the Homestuck area on the 18+ server.</p>
+</br>
+<p align= middle><ins><b> I have no DNI. If I don't like you, you're getting blocked lmao. </b></ins></p>
+</br>
 
-I am afflicted with autism hence I rarely talk. Whisper me if you'd like, I'm awkward but don't mind chatting in whispers. You can sometimes find me on the safe server where I play with my younger sibling, @POKIPOKIPOKIPOKI love you!
+<h3 align="middle";>If you want more of me:</h3>
 
----
-Things I like:
-Homestuck, Warrior Cats, Furries, South Park, Fnaf
-For more of my interests, look at my Spacehey.
+<p align= middle>Take a look at <a href="https://spacehey.com/corso target="_blank">my Spacehey,</a> it's got all of my interests :3 </p>
 
-Things I dislike:
-AI, raw tomatoes, cheese, french food, the dentist, big social medias
 
----
-I like it when people talk *at* me about their interests, I don't bite I promise :3 !!
+</br> 
+<p align="middle">
+  <img align="top" img src="https://files.catbox.moe/4nzois.jpeg" />
+</p>
 
-I have no dni. If I don't like you, you're getting blocked lmao.
+</br>
 
-*I will update this in the future*
+<h3 align="middle";>Ponies I commonly use:</h3>
+<p align="middle">
+  <img align="top" img src="https://files.catbox.moe/eco0zq.gif" width="200" />
+  <img align="top" img src="https://files.catbox.moe/zsnyo5.gif" width="200" /> 
+  <img src="https://files.catbox.moe/knb5or.gif" width="200" />
+  <img align="top" img src="https://files.catbox.moe/3lad9a.gif" width="200" />
+</p>
+</br>
+</br>
 
-this bio was revisited by YOURS TRULY!!!
+<p align= middle> Stupid art I did of me and my sibling</p>
 
----
-final say:
-![](https://files.catbox.moe/4nzois.jpeg)
+![:3](https://files.catbox.moe/bzo44w.png)
