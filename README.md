@@ -17,19 +17,3 @@
 <p align="middle">
   <img align="top" img src="https://files.catbox.moe/4nzois.jpeg" />
 </p>
-
-</br>
-
-<h3 align="middle";>Ponies I commonly use:</h3>
-<p align="middle">
-  <img align="top" img src="https://files.catbox.moe/zxgx5h.gif" width="200" />
-  <img align="top" img src="https://files.catbox.moe/fbrs3v.gif" width="200" /> 
-  <img align="top" img src="https://files.catbox.moe/whx2p1.gif" width="200" />
-  <img align="top" img src="https://files.catbox.moe/7j4y43.gif" width="200" />
-</p>
-</br>
-</br>
-
-<p align= middle> Stupid art I did of me and my sibling</p>
-
-![:3](https://files.catbox.moe/bzo44w.png)
