@@ -1,6 +1,6 @@
 ![](https://files.catbox.moe/1j9iht.png)
 
-<p align= middle> Wassup ponies, I am Canine (They/Her), <b><ins>I am an adult</ins></b> </p>
+<p align= middle> Wassup ponies, I am Canine (any pronouns), <b><ins>I am an adult</ins></b> </p>
 <p align= middle> I am afflicted with autism hence I rarely interact. I am the most awkward person in the universe. Feel free to int regardless.</p>
 <p align= middle><ins>C+H is always encouraged,</ins> Idc if you copy/use my ponies as inspo.</p> 
 <p align= middle> Usually in the Homestuck area on the 18+ server. On the safe server I'm always with <a href="https://github.com/POKIPOKIPOKIPOKI" target="_blank">my sibling <3.</a></p>
