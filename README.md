@@ -6,7 +6,7 @@
 <p align= middle><ins>C+H is always encouraged,</ins> Idc if you copy/use my ponies as inspo.</p> 
 <p align= middle> Usually in the Homestuck area on the 18+ server. On the safe server I'm always with <a href="https://github.com/POKIPOKIPOKIPOKI" target="_blank">my sibling <3.</a></p>
 </br>
-<p align= middle><ins><b> If I don't like you, you're getting hidden lmao. Proshipping bad.</b></ins></p>
+<p align= middle><ins><b> I have no DNI. If I don't like you, you're getting hidden lmao. I am not a proshipper.</b></ins></p>
 </br>
 
 <h3 align="middle";>If you want more of me:</h3>
