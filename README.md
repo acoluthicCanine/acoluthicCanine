@@ -1,6 +1,6 @@
 ![](https://files.catbox.moe/1j9iht.png)
 
-<p align= middle> Wassup ponies, I am Canine (any pronouns), <b><ins>I am an adult</ins></b> </p>
+<p align= middle> Wassup ponies, I'm Canine (any pronouns), <b><ins>I am an adult</ins></b> </p>
 <p align= middle> I am afflicted with autism hence I am the most awkward person in the universe. Feel free to int regardless.</p>
 <p align= middle> I love being stupid on the pony game. At times I will be obnoxious with my friends.</p> 
 <p align= middle><ins>C+H is always encouraged,</ins> Idc if you copy/use my ponies as inspo.</p> 
